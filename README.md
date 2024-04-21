@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Milan
-- 📫 You can also reach me at milanroumimper@gmail.com
+- 🏫 I currently study Creative Media and Game Technologies
+- 📫 You can reach me at milanroumimper@gmail.com
 
 
 
